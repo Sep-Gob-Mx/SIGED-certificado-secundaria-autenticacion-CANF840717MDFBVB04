@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CANF840717MDFBVB04
+CANF840717MDFBVB04
